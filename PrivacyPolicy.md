@@ -70,7 +70,7 @@ We may update this Privacy Policy occasionally. We will notify you of any signif
 
 If you have any questions about this Privacy Policy or our privacy practices, please contact us at:
 
-Email: [your-contact-email]
+Email: prodwser@gmail.com
 
 ## Consent
 
